@@ -1,1 +1,1 @@
-# Ehilntwy
+# Ehilntwy Think: Eunoia. Say: Aperçu. Do: Telesis. 
